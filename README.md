@@ -1,2 +1,2 @@
 # matchinggamefurby
-for my project furby-kaboom
+for my project furby-kaboom!
